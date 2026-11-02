@@ -1,1 +1,1 @@
-https://brujomayorjaguarnegro.com/
+lectura de cartas
