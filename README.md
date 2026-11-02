@@ -1,0 +1,2 @@
+# lecturatarot
+Lecturadecartas
