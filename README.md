@@ -1,2 +1,1 @@
-# lecturatarot
-Lecturadecartas
+https://brujomayorjaguarnegro.com/
